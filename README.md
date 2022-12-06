@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **djdawid2000@gmail.com**
 
-- 📄 Know about my experiences [#add later](#add later)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
